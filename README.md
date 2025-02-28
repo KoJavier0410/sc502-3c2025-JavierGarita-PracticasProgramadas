@@ -1,1 +1,0 @@
-# sc502-3c2025-JavierGarita-PracticasProgramadas
